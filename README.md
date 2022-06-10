@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @6ixo, My real name is "ilia" and im From IRAN
+- 👀 I’m interested in Making Bots
+- 🌱 I’m currently learning Python (im new)
+- 📫 How to reach me ------> t.me/MAD_XIXO in telegram
